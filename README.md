@@ -1,0 +1,2 @@
+# moneyohh
+Life dey hard
